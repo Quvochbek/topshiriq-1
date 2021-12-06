@@ -1,1 +1,0 @@
-# topshiriq-1
